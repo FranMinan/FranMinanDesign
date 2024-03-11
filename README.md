@@ -1,2 +1,0 @@
-# FranMinanDesign
- Portfolio Fran Miñán
